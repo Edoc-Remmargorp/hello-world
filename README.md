@@ -1,2 +1,2 @@
 # hello-world
-Losing my repository virginity.
+Just began coding two days ago...very excited about the journey!  I'm an RN, professional musician, father, and entrepreneur (although a pretty lousy one thus far!).  I started a couple of businesses last year and they faired rather poorly.  I was never able to capitalize on the tech side of business.  After estimating I spent probably close to 20k last year on internet related tasks/services related to my businesses, I decided to look into coding and programming.  After two days, I love it!  Wasn't expecting to become enthralled in an entirely new pursuit but feel fortunate that fate pushed it on my door mat!
